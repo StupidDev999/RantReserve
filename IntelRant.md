@@ -1,0 +1,3 @@
+# Intel CEO & managers are fucking dumb
+
+There's a good thing and you do everything to spoil it...
